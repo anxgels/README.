@@ -3,7 +3,7 @@
 <img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/f6ad639f-275b-438f-b3a7-497510cd969c" />
 
 
-its so freaking messy in here idc
+its so freaking messy in here idc hauahahgha
 
     
 💝’ed[strᥲw](https://lowkeynerdxd.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/yujisito)◝✩[sρotιfყ ρᥣᥲყᥣιst](https://open.spotify.com/playlist/6tUwqMk967MJnAnoeqJK36?si=RpxGcWQFSOiKMuqS3tQ8ug&utm_source=copy-link&pi=cbnaofZ-SdOTW)
