@@ -31,7 +31,7 @@ its so freaking messy in here idc hauahahgha
 
 
 <img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/1131122d-ae64-40e4-94a1-16fbab60ab42" />
-yes
+m
 
 
 
